@@ -1,13 +1,9 @@
-![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗦𝗢𝗥𝗥𝗬+𝗗𝗔+𝗠𝗪𝗢𝗡𝗘! ;REPO+വേണ്ടവർ;താഴെ+കാണുന്ന+ചാനലിൽ+നോക്ക്..!🤌🏼❤️)</p>
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=𝗦𝗢𝗥𝗥𝗬+𝗗𝗔+𝗠𝗪𝗢𝗡𝗘!🤌🏼❤️)</p>
 
 
 
 
 
-
-
-
-<i>REPO : <a href='https://t.me/mkn_bots_updates'>CLICK HERE🙂</a></i>
 
 
 
