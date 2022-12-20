@@ -12,7 +12,7 @@
 
 
 
-### JOIN OUR CHANNEL
+## JOIN OUR CHANNEL 👇🏼
 
 <p align="left">
 
