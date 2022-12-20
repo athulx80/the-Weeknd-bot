@@ -7,7 +7,7 @@
 
 
 
-<i>REPO : <a href='https://t.me/mkn_bots_updates'>Mᴋɴ Bᴏᴛᴢ™️</a></i>
+<i>REPO : <a href='https://t.me/mkn_bots_updates'>CLICK HERE🙂</a></i>
 
 
 
